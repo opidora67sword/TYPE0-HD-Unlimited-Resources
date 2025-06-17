@@ -1,0 +1,1 @@
+# TYPE0-HD-Unlimited-Resources
